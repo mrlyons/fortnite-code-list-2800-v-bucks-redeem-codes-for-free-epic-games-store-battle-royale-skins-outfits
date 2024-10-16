@@ -2,7 +2,7 @@
 
 Fortnite remains one of the most popular battle royale games, captivating millions with its vibrant graphics, engaging gameplay, and constant updates. One of the key elements that keep players hooked is the in-game currency, V-Bucks, which can be used to purchase skins, outfits, emotes, and more. In this article, we will explore how you can get free V-Bucks, answer some of the most common questions about them, and provide you with an up-to-date list of redeem codes.
 
-## [✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+## [✅🔴👉Get Ultimate Free Code Here!](https://mrlyons.online/giftcards/)
 
 ## Why Are V-Bucks Important?
 
